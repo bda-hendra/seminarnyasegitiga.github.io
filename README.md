@@ -1,0 +1,1 @@
+# seminarnyasegitiga.github.io
